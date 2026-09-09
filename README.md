@@ -1,5 +1,5 @@
-*M3M Sector 108 Noida – Upcoming Project
-*M3M Sector 108 Noida – Location, Price, Floor Plans & Investment Potential
+M3M Sector 108 Noida – Upcoming Project
+M3M Sector 108 Noida – Location, Price, Floor Plans & Investment Potential
 
 M3M Sector 108 Noida is an upcoming mixed-use real estate development planned in Sector 108, Noida, along the Noida–Greater Noida Expressway corridor.
 
@@ -11,7 +11,7 @@ With its strategic location, Expressway connectivity and growing infrastructure 
 
 👉 M3M Sector 108 Noida – Upcoming Project, Location & Price
 
-**📌 Project Overview
+📌 Project Overview
 Property Detail	Information
 Project Name	M3M Sector 108 Noida
 Project Type	Upcoming Mixed-Use Development
